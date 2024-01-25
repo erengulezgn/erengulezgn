@@ -3,6 +3,8 @@
 
 
 - 📫 How to reach me **erengulezgn@gmail.com**
+- or
+- 📫 How to reach me **ertert4400@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
